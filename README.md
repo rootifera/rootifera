@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hiya 👋
 
 - 🔭 I’m currently working on some personal projects. 
 - 💬 Ask me about Loom
